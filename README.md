@@ -1,0 +1,2 @@
+# tekad
+Cara hack
